@@ -5,3 +5,4 @@ cose fantasmagoriche
 questa cosa non ha senso!
 abbiamo finito qui ._.
 che pizze!
+dover rifare tutto è snervante...
